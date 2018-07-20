@@ -8,4 +8,3 @@
 ##### We don't gotta dodge lava
 ##### Welcome to my mine
 ##### Welcome to my mine
-f
